@@ -286,7 +286,7 @@ Minimum Sales     : 12300
 
 ## Video
 
-Link : 
+Link : https://drive.google.com/drive/folders/1AkdUp-K59YzhWiVjmzQBSpV7MKLd22bC?usp=sharing
 
 ---
 
